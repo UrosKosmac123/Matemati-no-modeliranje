@@ -1,1 +1,1 @@
-# Matemati-no-modeliranje
+# Matematicno-modeliranje
